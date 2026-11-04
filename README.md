@@ -21,6 +21,15 @@
 [Call to Lawyers](License/Call_to_Lawyers_v2.0_VISION-WIP.md)     
 [Call to Pharma](License/Call_to_Pharma_v2.2_VISION-WIP.md)  
 
+═══════════════════════════════════════════════════════════════
+### The Film Analogy
+
+S.V.E. does not prohibit watching the “film” or understanding its ideas. It regulates the copying, adaptation, AI training, incorporation, distribution, and secret enclosure of the protected work and its covered derivatives.
+
+**Ideas may be understood. Protected S.V.E./SVE+ embodiments may be used and commercialized—but not secretly enclosed.**
+
+**In short: earn openly from your skills and work, not from hiding Humanity’s shared knowledge.**
+═══════════════════════════════════════════════════════════════
 
 > ⚠️ **Важное уведомление / Wichtiger Hinweis / Important Notice**
 
