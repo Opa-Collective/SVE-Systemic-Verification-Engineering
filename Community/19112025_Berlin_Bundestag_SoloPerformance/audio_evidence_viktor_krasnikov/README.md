@@ -1,5 +1,14 @@
 # Показания Виктора Красникова | Testimony of Viktor Krasnikov | Aussage von Viktor Krasnikov
 
+---
+
+### UPD 22.11.2026 10:24 CET, Totensonntag
+Виктора Красникова больше нет с нами, он умер 28.08.2026. Царство ему небесное. | 
+Viktor Krasnikov is no longer with us; he passed away on August 28, 2026. May he rest in peace. | 
+Viktor Krasnikow ist nicht mehr unter uns; er ist am 28.08.2026 verstorben. Möge er in Frieden ruhen. | 
+
+---
+
 source:\
 voice_23-09-2025_12-14-46\
 voice_23-09-2025_12-18-33\
